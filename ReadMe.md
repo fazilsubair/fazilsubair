@@ -1,3 +1,3 @@
 - hey, myself Fazil Subair
-- currently pursuing my degree in computer science and engineering.
+- currently working as a cyber security analyst.
 - loves to be a part of the community
